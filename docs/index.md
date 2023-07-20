@@ -7,4 +7,3 @@
 #
 layout: home
 ---
-Get based by some bell curve tail facts.
