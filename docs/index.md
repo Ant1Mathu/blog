@@ -7,4 +7,4 @@
 #
 layout: home
 ---
-Prepare of getting based.
+Get based by some bell curve tail facts.
