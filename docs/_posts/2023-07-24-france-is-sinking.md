@@ -4,17 +4,24 @@ title: "France is sinking"
 categories: politics
 ---
 
-With WWII culpability, France had been acquiring so much inertia and it was impossible to avoid the collision with the multiculturalism iceberg.
+The weight of culpability had created too much inertia, and France collided with multiculturalism iceberg.  
 
-Some killjoys rang the bell but haven't been listened to. This small ice cube looked insignificant next to France’s size. 
+The little crack widened and quickly a torrent poured into the engine room. Most of the machinery workers managed to escape on time, but some of them got overpowered by the water pressure.
+Despite the deluge, almost no one noticed anything in the floors above. The ship was so huge, it would take hours before the waters engulfed it completely.  
 
-The little crack widened and quickly a torrent of water was pouring into the engine room. Most of the machinery workers managed to escape on time, but some of them were overpowered by the water pressure.
+And yet, in some cabins, the carpet was getting wet. Middle-class tourists moved upstairs. They have been saving money for months for this cruise. No wonder they started to complain when they were told that “there will be no refund [...] situation under control”.  
 
-Despite the deluge in the lower parts of the boat, almost no one was noticing anything in the floors above. The ship was so huge, it would take hours, maybe days before it got buried by the waters.  
+As compensation, they were offered a free ticket for the prestigious show on the deck. Macron’s band was playing its famous cover : "Aqua Surge", a top hit for 7 years in a row ! Macron started singing the couplet:  
 
-And yet, in some cabins, the carpet was already getting wet. Middle class tourists moved upstairs.They have been saving money for months for this cruise. No wonder they started to complain when they’ve been told that “there will be no refund [...] situation under control”.  
+-- “Yet some resist, their minds mislaid …”  
 
-As compensation, they were offered a free ticket for the prestigious show on the deck. Macron’s band was playing its famous cover : "can't live without water", a top hit for 7 years in a row !
-Macron started singing the couplet: “Yet some resist, their minds mislaid …” and held the mic to the crowd, hoping they would complete the verse in chorus. Fortunately, Carine, 45 yo HR, led the others with a strong and tone-deaf voice: “Within the ship, a watery rave !". The last guitar notes vanished under the loud applause. It was the 50th time this song was played tonight, and people loved it.  
+and Carine, a 45 yo HR and true fan, led the crowd with a strong tone-deaf voice:  
+
+-- “Within the ship, a watery rave !"  
+
+The last guitar notes vanished under the loud applause. It was the 30th time this song was played tonight, and people loved it.  
+
+Suddenly, a huge breach appeared and cut the deck in half, with a thunderous noise. People fell, music stopped. There was panic on board. Everybody rushed towards the lifeboats but they had dissapeared. First class was already rowing away from the hull. 
+Some jumped aboard and got shocked by the cold and ruthless ocean.  
 
 In the grand salon, the silverware, stained with the french ice cream, dove headfirst. Champagne flutes kept their feet in the water a few more minutes before taking the plunge. The Circassian Lady, cheerfully encouraged by the Louis XIV armchairs, finally threw off her clothes and jumped into this sumptuous midnight bath.
