@@ -9,8 +9,7 @@ The weight of culpability had created too much inertia, and France collided with
 The little crack widened quickly and a torrent poured into the engine room. Most of the machinery workers managed to escape, but some of them got overpowered by the water pressure.
 Despite the deluge, almost no one noticed anything in the floors above. The ship was so huge, it would take hours before the waters engulfed it completely.  
 
-And yet, in some cabins, the carpet was getting wet. Middle-class tourists moved upstairs. They had been saving money for months for this cruise. A group of old ladies yelled that it was their last trip with this company when they were informed “there will be no refund [...] situation under control”.  
-As compensation, they were offered a free ticket for the prestigious show on the deck. 
+And yet, in some cabins, the carpet was getting wet. Middle-class tourists moved upstairs. They had been saving money for months for this cruise. A group of old ladies yelled that it was their last trip with this company when they were informed “there will be no refund [...] situation under control”. As compensation, they were offered a free ticket for the prestigious show on the deck. 
 
 Macron’s band was playing its famous cover : "Aqua Surge", a top hit for 6 years in a row ! Macron started singing the couplet:  
 
