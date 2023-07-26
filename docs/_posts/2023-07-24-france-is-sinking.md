@@ -11,7 +11,7 @@ Despite the deluge, almost no one noticed anything in the floors above. The ship
 
 And yet, in some cabins, the carpet was getting wet. Middle-class tourists moved upstairs. They had been saving money for months for this cruise. A group of old ladies yelled that it was their last trip with this company when they were informed “there will be no refund [...] situation under control”. As compensation, they were offered a free ticket for the prestigious show on the deck. 
 
-Macron’s band was playing its famous cover : "Aqua Surge", a top hit for 6 years in a row ! Macron started singing the couplet:  
+Macron’s boy band was playing its famous cover : "Aqua Surge", a top hit for 6 years in a row ! He started singing the couplet:  
 
 -- “Yet some resist, their minds mislaid …”  
 
