@@ -15,7 +15,7 @@ As compensation, they were offered a free ticket for the prestigious show on the
 
 -- “Yet some resist, their minds mislaid …”  
 
-and the crowd, led by Carine, a devoted 45-year-old HR and true fan, responded:  
+and the crowd, led by Carine, a devoted 45-year-old HR and true fan, bleated:  
 
 -- “Within the ship, a watery rave !"  
 
