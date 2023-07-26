@@ -21,7 +21,7 @@ and the crowd, led by Carine, a devoted 45-year-old HR and true fan, bleated:
 
 The last guitar notes vanished under the loud applause. It was the 30th time this song was played tonight, and people loved it.  
 
-Suddenly, a huge breach appeared and cut the deck in half, with a thunderous noise. People fell, music stopped. There was panic on board. Everybody rushed towards the lifeboats but they had dissapeared. First class was already rowing away from the hull. 
+Suddenly, a huge breach appeared and cut the deck in half, with a thunderous noise. People fell, music stopped, panic on board. Everybody rushed towards the lifeboats but they had dissapeared. First class was already rowing away from the hull. 
 Some jumped aboard and got shocked by the cold and ruthless ocean.  
 
 In the grand salon, the silverware, stained with the french ice cream, dove headfirst. Champagne flutes kept their feet in the water a few more minutes before taking the plunge. The Circassian Lady, cheerfully encouraged by the Louis XIV armchairs, finally threw off her clothes and jumped into this sumptuous midnight bath.
