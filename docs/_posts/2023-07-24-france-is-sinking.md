@@ -6,7 +6,7 @@ categories: politics
 
 The weight of culpability had created too much inertia, and France collided with multiculturalism iceberg.  
 
-The little crack widened quickly and a torrent poured into the engine room. Most of the machinery workers managed to escape on time, but some of them got overpowered by the water pressure.
+The little crack widened quickly and a torrent poured into the engine room. Most of the machinery workers managed to escape, but some of them got overpowered by the water pressure.
 Despite the deluge, almost no one noticed anything in the floors above. The ship was so huge, it would take hours before the waters engulfed it completely.  
 
 And yet, in some cabins, the carpet was getting wet. Middle-class tourists moved upstairs. They have been saving money for months for this cruise. No wonder they started to complain when they were told that “there will be no refund [...] situation under control”.  
